@@ -14,3 +14,4 @@
 *I don't judge people! I'm Open to anyone! EXCEPT. | P3d0s, weird people, my exes, SOME. LISTEN SOME. pros/darks, racists/homophobes/transphobes/conservities/people who like a certian dictator* ![](https://camo.githubusercontent.com/583931cf93da84fb752a85e94c3a67a4c64c016e1a8cafd60188bc59a25d222a/68747470733a2f2f692e706f7374696d672e63632f70723832344a66322f6a65616c6f75732e676966)
 *My Fitkins! - Will Byers, Sydney Novak, Beverly Marsh, Robin Buckley, Luz Noceda, Enid Sinclair, El Hopper, Ziggy Berman!*  ![](https://camo.githubusercontent.com/52e3d44c1c490640a78c7263ea7e37d801cce0a374e233da462dddec21079713/68747470733a2f2f692e6962622e636f2f66597844676331542f77696e67322e676966) 
 <img src="https://blinkies.cafe/b/blinkiesCafe-xR.gif" style="width:200px;"/>
+*TY NYAMII FOR THE BLINKIES:3*
