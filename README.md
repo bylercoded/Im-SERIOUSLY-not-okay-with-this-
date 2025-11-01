@@ -15,4 +15,3 @@
 *My Fitkins! - Will Byers, Sydney Novak, Beverly Marsh, Robin Buckley, Luz Noceda, Enid Sinclair, El Hopper, Ziggy Berman, Mike Wheeler, and Richie Tozier!!*  ![](https://camo.githubusercontent.com/52e3d44c1c490640a78c7263ea7e37d801cce0a374e233da462dddec21079713/68747470733a2f2f692e6962622e636f2f66597844676331542f77696e67322e676966) \
 *Haihai! It has come to my attentions im being accused of being a pro/dark.. i am not btw! please do not call me this as it is degrading to me and my trauma! Please do not drag my name into anything. love yall<3*
 <img src="https://blinkies.cafe/b/blinkiesCafe-xR.gif" style="width:200px;"/>
-*TY NYAMII FOR THE BLINKIES:3*
