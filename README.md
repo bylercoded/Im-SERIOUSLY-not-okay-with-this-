@@ -2,7 +2,8 @@
 ![](https://camo.githubusercontent.com/ec2a87e5f2b1a8e9e33f607a67dd1a6b74f8e0dcc8819e4040cffa53110c7bb1/68747470733a2f2f626973637569742e6372642e636f2f6173736574732f696d616765732f67616c6c65727938352f35396266353633632e6769663f763d63633163366466612e676966) 
 ![](https://camo.githubusercontent.com/8f2f841aa2b3467065884821a12d64fc5242a043928f3ee7480f98bd6632e1eb/68747470733a2f2f6c61626f7261746f72792e6e656f6369746965732e6f72672f7374616d70732f626c75652f312e676966) 
 <img src="https://blinkies.cafe/b/display/0123-glitterpink.gif" style="width:200px;"/>
- <img src="https://blinkies.cafe/b/blinkiesCafe-JU.gif" style="width:200px;"/>
+ <img 
+*The BIGGEST Richie Tozier Fitkinner<3*  src="https://blinkies.cafe/b/blinkiesCafe-JU.gif" style="width:200px;"/>
  *Im Just a Silly Illy Kit in this big-world TwT* <img src="https://camo.githubusercontent.com/fa89306406e1fec2c09b49e939da2166168dac1759c226155ff0b7b0fb36dbca/68747470733a2f2f64697669646572732e6372642e636f2f6173736574732f696d616765732f67616c6c65727930342f35623730383436612e706e673f763d30356433336639312e706e67" style="width:100px;"/>
 *Haiihaiii! Im Mimi/Kitty!* <img src="https://media.tenor.com/-9sP1rB_lIoAAAAj/blinkies.gif" style="width:25px;"/>
 *I go by | She/Her/Pup/Kitten!* 
