@@ -3,3 +3,4 @@
 <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/67435462-4994-48f3-903f-e606ad705b52" />
 
 <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/dcb14596-1cb2-4aaa-b949-53abfbac1065" />
+*ԋαιι! ιɱ ɱιɱι ' ɾιƈԋιҽ! | 16 | ƚαƙҽɳ | ρσʅყ!*
