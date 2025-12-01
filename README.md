@@ -1,6 +1,16 @@
-<img width="1911" height="1483" alt="image" src="https://github.com/user-attachments/assets/87a5c287-a050-449a-b61f-968607dc2ae4" />
-*ԋαιι! ιɱ ɱιɱι ' ɾιƈԋιҽ! | 16 | ƚαƙҽɳ | ρσʅყ! | ԃσ ιɳƚ ' ɱყ ϝαɳԃσɱʂ, ʅσʋҽɾʂ, ɱσσƚʂ, ɳιƈҽ ρҽσρʅҽ! | ԃɳι. ' ʂσɱҽ. ρɾσ'ʂ/ԃαɾƙ'ʂ, ɾυԃҽ ρҽσρʅҽ,ƈσριҽɾʂ!*
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d0a8cd35-ce80-4e65-adee-cd7af70eeae7" />
-<img width="2040" height="1052" alt="image" src="https://github.com/user-attachments/assets/4d13ac81-0a3d-4b87-8b8a-c2467519d232" />
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/56813fdd-2395-4b0e-894a-a2d94a25308b" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/482e5c8f-0a53-4ecd-951b-7b10240a8b3e" />
+![](https://64.media.tumblr.com/e098d319ac016b3dc5d8acbdf929b361/67b3e5986da90d63-ef/s400x600/48581c0c324cfb2ee163cff772b6861e848fb73d.pnj)
+
+![](https://64.media.tumblr.com/06ee63518239782fe8a1ceff4218dbc1/8b8f801337246af9-3e/s400x600/34ce216c6dfc77169a553b098120fe2bfe9305b7.gifv) 
+
+![](https://64.media.tumblr.com/b651f6de897c36f88229640911b87540/67b3e5986da90d63-c4/s400x600/d6753404af61342ffda59c4e98a9ab0a0d67d69a.pnj)
+
+## <p align="center" >𝒂𝒃𝒐𝒖𝒕 𝒎𝒘𝒆!</p>
+<p align="center"> 𝓶𝓲𝓶𝓲 ' 𝓻𝓲𝓬𝓱𝓲𝓮  </p>
+<p align="center"> 6𝓽𝓮𝓮𝓷 + 𝓯𝓮𝓶 𝓸𝓻𝓼 𝓶𝓪𝓵𝓮 (𝓻𝓪𝓻𝓮)
+<p align="center"> 𝓬+𝓱 | 𝓲𝔀𝓬! | 𝓷𝓿 𝓪𝓽 𝓯𝓲𝓻𝓼𝓽 𝓶𝓮𝓮𝓽!
+
+![](https://64.media.tumblr.com/b651f6de897c36f88229640911b87540/67b3e5986da90d63-c4/s400x600/d6753404af61342ffda59c4e98a9ab0a0d67d69a.pnj)
+
+## <p align="center" > 𝓑𝓪𝓲𝓲!!</p>
+
+![](https://64.media.tumblr.com/ede0385a51e61644fefd162f9b7f619b/66053529b056fc6f-93/s540x810/951c551c9b262d4648dc24ec508824d49471c726.gif)
